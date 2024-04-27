@@ -1,6 +1,6 @@
 # Disneyplus.com/begin 
 
-[![Disneyplus.com/begin](get-start-button.png)](http://dis.amdonline.site/)
+[![Disneyplus.com/begin](get-start-button.png)](https://dis.activateprod.online/)
 
 Disney plus is the perfect place for incredible video-on-demand streaming service where you can stream the contents like films, series, etc. If you want to activate the Disney plus channel on the streaming device, you can get this channel by visiting the [Disneyplus.com/begin](https://disney-pluscombegin.github.io/).
 
